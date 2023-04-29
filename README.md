@@ -1,1 +1,1 @@
-# avoidninjakun3
+避けろ！忍者くんの第三弾
